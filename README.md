@@ -1,2 +1,2 @@
 # hello-world
-Just another repository
+Just another repository for a bunch of lips and assholes...
